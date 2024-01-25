@@ -1,5 +1,5 @@
 
-👋 Hello there! I'm Shashini Hansika, a passionate third-year Cyber Security student at SLIIT (Sri Lanka Institute of Information Technology). 🕵️‍♂️
+👋 Hello there! I'm Shashini Hansika, a passionate fourth-year Cyber Security student at SLIIT (Sri Lanka Institute of Information Technology). 🕵️‍♂️
 
 🎓 Education:
 - Pursuing a Bachelor's degree in Cyber Security
